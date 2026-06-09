@@ -1,4 +1,4 @@
-
+steal a brainrot Script stealth offers the most advanced steal a brainrot Script, with auto-sell and custom skins. Perfect for dominating any match.
 
 
 
